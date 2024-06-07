@@ -1,1 +1,1 @@
-another one by johnny
+another one by Johnny and Jester
